@@ -1,5 +1,5 @@
 ### Hi there 👋
-
+Reach out to me at: pranaythakur543@gmail.com
 <!--
 **pranay5432/pranay5432** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
